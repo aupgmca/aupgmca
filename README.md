@@ -43,4 +43,4 @@
 
 ## 📫 Contact
 - Email: gnsutradhar@gmail.com  
-- LinkedIn: [Add your LinkedIn link here]  
+- LinkedIn: [[](https://www.linkedin.com/in/gnsutradhar/)]  
